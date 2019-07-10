@@ -1,1 +1,1 @@
-enjoy the devops training
+enjoy the devops training course

@@ -1,1 +1,1 @@
-scooty is a member of amazon project
+scooty is a member of amazon project and he is leader too
